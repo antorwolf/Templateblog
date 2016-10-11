@@ -1,4 +1,4 @@
-Tis whole project is based in peple coping it so...
+Tis whole project is based in people coping it so...
 
 BE FREE TO COPY IT!
-(and change it that IS what it is for)
+(and change it, that IS what it is for)
